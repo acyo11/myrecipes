@@ -29,6 +29,6 @@ Roll the dough into small balls, about 1-inch in diameter. Fill a separate small
 Bake for about 8-10 minutes, until the cookies begin to slightly crack on top.  (They will crack more while cooling.)  Remove from the oven and let cool for 4-5 minutes. Then transfer the cookies to wire racks to cool completely.
 
 Serve warm and enjoy, or store in a sealed container for up to 4 days.  Or freeze for up to 3 months.
-
+Enjoy with a cold glass of milk. 
 
 *Found at https://www.gimmesomeoven.com/chewy-ginger-molasses-cookies/*
